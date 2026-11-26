@@ -1,7 +1,7 @@
 
 <div align="center">
 
-# ⚔️ José Edson Cisneiros Netto
+# ⚔️ José Edson de Lucena Cisneiros Netto
 
 ### 「 NettoCisneiros 」
 
